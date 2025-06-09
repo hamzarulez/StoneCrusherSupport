@@ -8,7 +8,7 @@ For support, feedback, or business inquiries, please contact us via E-mail or Ti
 
 **Support Email:** [Hamzamohmmadshah@gmail.com](mailto:your-support-email@example.com)
 
-**TikTok:** @StoneCrusher_App
+**TikTok:** [@StoneCrusher_App](https://www.tiktok.com/@StoneCrusher_App)
 
 ---
 
