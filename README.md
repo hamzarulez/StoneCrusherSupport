@@ -6,7 +6,7 @@ Thank you for playing StoneCrusher! We are here to help you with any issues or q
 
 For support, feedback, or business inquiries, please contact us via E-mail or Tiktok. We will do our best to respond to you as soon as possible.
 
-**Support Email:** [Hamzamohmmadshah@gmail.com](mailto:your-support-email@example.com)
+**Support Email:** [Hamzamohammadshah@gmail.com](mailto:your-support-email@example.com)
 
 **TikTok:** [@StoneCrusher_App](https://www.tiktok.com/@StoneCrusher_App)
 
