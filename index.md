@@ -1,5 +1,3 @@
-# StoneCrusher Support
-
 Thank you for playing StoneCrusher! We are here to help you with any issues or questions you may have.
 
 ## Contact Us
